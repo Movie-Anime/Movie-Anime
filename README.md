@@ -1,3 +1,8 @@
+<p align="center">
+  <img src="LINK_GAMBAR_DI_SINI" alt="Banner Movie-Anime" style="width:100%; max-width:900px;" />
+</p>
+
+
 # 🎬 Selamat Datang di Dunia Movie & Anime! 🌟
 
 Halo! 👋 Selamat datang di akun GitHub **Movie-Anime**. Di sini kamu bisa menemukan berbagai koleksi film dan anime pilihan, lengkap dengan link download yang mudah diakses.
