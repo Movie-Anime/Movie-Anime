@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="LINK_GAMBAR_DI_SINI" alt="Banner Movie-Anime" style="width:100%; max-width:900px;" />
+  <img src="https://github.com/Movie-Anime/Movie-Anime/blob/main/banner.png" alt="Banner Movie-Anime" style="width:100%; max-width:900px;" />
 </p>
 
 
