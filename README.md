@@ -37,9 +37,6 @@ Silakan bantu dengan:
 
 ## 📡 Hubungi Saya
 
-📺 YouTube: [Triaalia](https://www.youtube.com/@Triaalia)  
-📧 Email: *[masukkan email kamu di sini]*  
-☕ Dukung saya: *[link Buy Me a Coffee / Saweria / lainnya jika ada]*  
 
 ---
 
