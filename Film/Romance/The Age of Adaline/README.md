@@ -19,7 +19,7 @@ Film ini menyajikan kisah cinta yang abadi, penuh emosi, dan menyentuh hati. Coc
 ## 📥 Link Unduhan & Streaming
 
 🔗 **Download The Age of Adaline Subtitle Indonesia**:  
-👉 [https://bit.ly/452iIPV](https://bit.ly/452iIPV)
+👉 [The-Age-of-Adaline-download](https://shrinkme.ink/theageofadaline)
 
 Nikmati film ini dengan kualitas terbaik dan subtitle bahasa Indonesia untuk pengalaman menonton yang maksimal.
 
